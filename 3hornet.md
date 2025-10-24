@@ -3,3 +3,5 @@ Guiado por esas palabras, el Caballero atravesó túneles resonantes y llegó al
 Sus ojos, como dos agujas rojas, lo escrutaron sin palabras.
 —Tu senda no está escrita —dijo, girando su aguja con elegancia—. Pero si buscas fuerza, deberás enfrentar la frialdad del olvido.
 Y señaló hacia el norte, donde un soplo helado descendía desde las Cuevas Congeladas.
+
+video https://files.fm/f/bstf8ds48g
