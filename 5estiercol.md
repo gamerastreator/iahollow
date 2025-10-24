@@ -2,3 +2,6 @@ El Caballero obedeció y se internó en un túnel húmedo y tibio. Allí rugía 
 
 En el silencio posterior, una sombra se alzó de su cuerpo: su eco, su reflejo.
 La Sombra avanzó sola, guiada por un instinto oscuro hasta un paraje sereno llamado Notas Tranquilas, donde los sonidos eran suaves y el aire, melancólico.
+
+video 
+https://files.fm/f/5dz3qk2tyb
