@@ -3,4 +3,5 @@ Allí, entre estalactitas de hielo y ecos cristalinos, el Caballero halló a un 
 
 Zote, tras tropezar con una piedra congelada, señaló un pasadizo.
 —El Defensor del Estiércol guarda el último de los caminos. Si deseas probar tu valía, encuéntralo allí donde el suelo aún respira calor.
-video https://files.fm/f/357v6jk3b2
+video 
+https://files.fm/f/b4nd5d6wtd
